@@ -16,7 +16,7 @@ d.gruenberg@hs-furtwangen.de
 
 Staatsbürgerschaft Deutsch
 
-
+![männchen](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d4/Simple_Stick_Figure.svg/170px-Simple_Stick_Figure.svg.png "Männchen")
 
 ## Schulische Bildung
 
