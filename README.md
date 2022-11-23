@@ -17,6 +17,8 @@ d.gruenberg@hs-furtwangen.de
 Staatsbürgerschaft Deutsch
 
 
+![bild_strichmsennchen](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d4/Simple_Stick_Figure.svg/170px-Simple_Stick_Figure.svg.png "Strichmaennchen")
+
 
 ## Schulische Bildung
 
